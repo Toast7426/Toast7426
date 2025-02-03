@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my projects
 - 📫 How to reach me: here is ok
 - 😄 Pronouns: at least, not real toast
-- ⚡ Fun fact: I'm not a toast
+- ⚡ Fun fact: I'm uneatable
 
 <!---
 Toast7426/Toast7426 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
